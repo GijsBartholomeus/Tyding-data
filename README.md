@@ -1,2 +1,0 @@
-# Tyding-data
-# Tyding-data
